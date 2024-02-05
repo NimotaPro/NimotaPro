@@ -9,5 +9,5 @@
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm a fashion enthusiast, with a knack for using CAD (computer aided designs)
   to create perfect traditional bridal attires; a skill that mirrors my approach of using tech to solve problems and to enhance creativity.
-  See for yourself on Instagram [here](https://www.instagram.com/blackngoldfashion?igsh=OGQ5ZDc2ODk2ZA%3D%3D&utm_source=qr)
+  This also goes to show that I commit to whatever I do. See for yourself on Instagram [here](https://www.instagram.com/blackngoldfashion?igsh=OGQ5ZDc2ODk2ZA%3D%3D&utm_source=qr)
   ![](Copy)
